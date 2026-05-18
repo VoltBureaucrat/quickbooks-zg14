@@ -1,4 +1,4 @@
-# 
+# rare QuickBooks for PC plugins is the best QuickBooks for PC plugins with profit-and-loss and recurring-billing. Safe, reliable, and optimized for maximum performance.
 
 
 
